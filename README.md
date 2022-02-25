@@ -1,2 +1,3 @@
 # Penis
-I don't now coding
+I don't know coding
+Also I eat bricks and shit
